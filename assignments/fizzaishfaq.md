@@ -1,1 +1,1 @@
-https://github.com/Fizzaishfaq110
+https://github.com/Fizzaishfaq110/profile.git
